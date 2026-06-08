@@ -6,4 +6,5 @@ Vist my [website.](https://duck2469.neocities.org/) Thanks :D
 
 <!---
 patomario
+copyright sopmething
 --->
