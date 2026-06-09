@@ -1,4 +1,4 @@
-I’m duck2469. I like to play video games, and make game mods. Woah!  
+Hi, I'm Patomario. I like to play video games, and make game mods. Woah!  
 
 Vist my [website.](https://duck2469.neocities.org/) Thanks :D
 
